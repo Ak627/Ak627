@@ -10,7 +10,6 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on stuff
 - 🤔 I’m looking for help with other stuff
 - 💬 Ask me about idk stuff i guess
-- 📫 How to reach me: 760942@dpsk12.net
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I like coding
 -->
