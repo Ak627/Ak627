@@ -12,4 +12,3 @@ Here are some ideas to get you started:
 - 💬 Ask me about idk stuff i guess
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I like coding
--->
